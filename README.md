@@ -29,7 +29,7 @@ I'm a passionate Software developer .
 </h5>
 
 📫 How to reach me **meshakotieno343@gmail.com** <br/>
-🚀 My resume **[Meshack-Otieno-RESUME](https://drive.google.com/file/d/1bNUSh8oQb_DoY03qSeUVHz9yVIwSMbrJ/view?usp=sharing)** <br/>
+🚀 My resume **[Meshack-Otieno-RESUME](https://drive.google.com/file/d/1wfN5BoHEohQDTaptnaiwjzoDlhDRZATp/view?usp=sharing)** <br/>
 My Portfolio **[Meshak-Otieno-Portfolio](https://my-portfolio-mesho254.vercel.app/)**
 
 <p>
